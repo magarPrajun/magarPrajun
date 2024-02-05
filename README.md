@@ -1,4 +1,4 @@
-### 😎 About Me :
+### 😎 Interesting Facts About Me:
 
 - 👋 Hi, I’m Prajun Lungeli
 - 💻 I'm a software engineer who believes in the power of coding to solve most problems worldwide. 
